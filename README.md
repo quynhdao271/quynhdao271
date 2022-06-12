@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Zaoo
+- 👀 I’m interested in ... you
+- 🌱 I’m currently learning ... how to love you
+- 💞️ I’m looking to collaborate on ...you
+- 📫 How to reach me ...a true love
